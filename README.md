@@ -1,1 +1,0 @@
-# heypaprika.github.io
